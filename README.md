@@ -1,2 +1,1 @@
-# Dark-lover
-i'm not perfect but i thing one day i am a good 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nclwh7w35vkuxoi5ssrx6dgu7m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nclwh7w35vkuxoi5ssrx6dgu7m&redirect=true)
